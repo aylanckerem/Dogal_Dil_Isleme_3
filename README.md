@@ -22,5 +22,7 @@
 ![image](https://user-images.githubusercontent.com/96474969/211214980-365762d6-064e-4c20-88b8-0729f92593f0.png)
 
 
+### Bu ödevi Cem GÖL ve Kerem AYLANÇ olarak ortak yaptık.
+
 
 
